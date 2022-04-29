@@ -14,6 +14,8 @@ Par contre d'après wikipédia : L’histoire, est à la fois l'étude et l'écr
 Alors l'histoire se doit d'être **L'** Histoire, avec un grand **H**, car elle se doit d'être **historique** !<br>
 Elle constituera la base de tous les Hommes de cette planète! Comme l'histologie!<br>
 
+Mais que faisons-nous alors de la fiction, des rêves et de l'irréel ? N'aurait-ils pas leur place dans ce qu'on nomme l'histoire ? L'Art n'est-il pas le reflet de notre société et de notre passé ?
+
 
 ---
 *A vous de jouer*
